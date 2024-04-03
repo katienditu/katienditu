@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on projects focused on economic research, market analysis, and any innovative initiatives that require data-driven insights to solve complex problems.
 
-📫 How to reach me: You can connect with me on LinkedIn at https://www.linkedin.com/in/catherine-nditu-82b9b5232/  or email me directly at katienditu@gmail.com 
+📫 How to reach me: You can connect with me on LinkedIn at https://www.linkedin.com/in/catherine-nditu-82b9b5232/  or email me directly at katenditu@gmail.com 
 😄 Pronouns: She/Her
 
 ⚡ Fun fact: Outside of data analysis, I have a passion for exploring the intersections between economics and sustainable development, and I enjoy unraveling the stories told by data in my quest to contribute to a more equitable world.
